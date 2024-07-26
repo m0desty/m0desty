@@ -1,7 +1,7 @@
 HI MATES, I'M MODEST-HACKER
 I HAVE A HUGE TENDENCY FOR CYBER SECURITY
 I'M currently busy with learning CYBER SECURTY (have just started(2 months))
-- 💞️ I’m looking to collaborate with Syber Security masters
+- 💞️ I’m looking to collaborate with Cyber Security masters
 - You can reach me via my email hostliryz@gmail.com
 
 
